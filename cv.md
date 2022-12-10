@@ -1,4 +1,4 @@
-# **ELVIRA FILIMONENKA**
+# **ELVIRA FILIMONENKO**
 
 ## Contacts
 ### Location: Minsk, Belarus
@@ -15,3 +15,6 @@
 
 ## HOBBIES
 ### Travel, read books, dance, yoga, aerial stretching
+
+#### Russian - native speaker
+#### English - Epam English test result: A2
