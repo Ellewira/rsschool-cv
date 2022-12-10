@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Ellewira.github.io/rsschool-cv/cv
